@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Perez, Cris John M. a.k.a CJ, @nekkoji
-- 👀 I’m interested in Gaming (specifically League, TFT, and Valo) and Mangas/Manhwas
+- 👀 I’m interested in Gaming (specifically League, TFT, and Valo, Gacha Games and anything with pack opening) and Mangas/Manhwas
 - 🌱 I’m currently studying BS in Computer Engineering
 - 📫 You can reach me at perezcj2003@gmail.com
 - ⚡ Fun fact: I like to cook and I play drums
